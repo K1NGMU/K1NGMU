@@ -10,5 +10,4 @@ Meu nome é Murilo Gabriel
 
   garcia.amorim@escola.pr.gov.br
 
-![](https://media1.tenor.com/m/ODcA3RsuMQgAAAAd/monkey-selfie.gif)
-
+![](https://media1.tenor.com/m/L9TH3SB7chkAAAAd/maymun-mordeus.gif)
